@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lysex
+- 👀 I’m interested in money '-'
+- 🌱 I’m currently learning  a programa
+- 💞️ I’m looking to collaborate on cu nenhum
+- 📫 How to reach me (mandando pix)
